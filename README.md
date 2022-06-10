@@ -1,6 +1,6 @@
 # MARIA EDUARDA PARDINHO 
 - 👋 Olá, meu nome é Maria Eduarda
-- 👀 sou interressada em programaçao
+- 👀 sou interessada em programaçao
 - 🌱 
 - 💞️ nao pretendo colaborar 
 - 📫
